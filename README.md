@@ -3,7 +3,7 @@
 - 🌱 Aktualnie się uczę głodny
 - 💞️ Szukam współpracy przy niczym
 - 📫 Jak się ze mną skontaktowaćna discordzie
-- 😄 Zaimki: Fekson
+- 😄 Zaimki: on
 - ⚡ Ciekawostka: wale 10 razy dziennie
 
 
